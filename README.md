@@ -1,2 +1,3 @@
-# escolappz24
-São aulas de projetos de 2024
+### Boas vindas ao meu perfil🍒
+
+Meu nome é Mirela
